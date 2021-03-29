@@ -1,0 +1,2 @@
+# iluminati
+bacot kontol
